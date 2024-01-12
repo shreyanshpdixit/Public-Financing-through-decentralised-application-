@@ -1,1 +1,1 @@
-# Public-Financing-through-decentralised-application-
+# Public-Financing-through-decentralised-application
